@@ -1,1 +1,0 @@
-# giang-sinh-cung-trananhquan
